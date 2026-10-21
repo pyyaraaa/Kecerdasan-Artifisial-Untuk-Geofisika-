@@ -1,0 +1,1 @@
+# Kecerdasan-Artifisial-Untuk-Geofisika-
